@@ -1,0 +1,2 @@
+# FTMarxist
+Data about capitalism 
